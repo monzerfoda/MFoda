@@ -1,2 +1,2 @@
 # MFoda
-العاصمة الإدارية 
+AqarEg.txt 
